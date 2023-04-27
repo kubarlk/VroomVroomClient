@@ -25,7 +25,7 @@
 ### 📀 Screens
 
 ---
-https://user-images.githubusercontent.com/45077920/234842841-fb553233-290e-46f6-a0c5-244f0af20e14.mp4
+[Video: click](https://user-images.githubusercontent.com/45077920/234842841-fb553233-290e-46f6-a0c5-244f0af20e14.mp4)
 ---
 
 
